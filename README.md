@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @WhalesInkArt
+- 👋 Hi, I’m @Whalesink
 - 👀 I’m interested in ART
 - 🌱 I’m currently learning Software Dev.
 - 💞️ I’m looking to collaborate on Memes
